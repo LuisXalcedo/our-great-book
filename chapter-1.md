@@ -22,7 +22,7 @@ Say what? Hello Morbo, how's the family? Our love isn't any different from yours
 
 Interesting. No, wait, the other thing: tedious. Our love isn't any different from yours, except it's hotter, because I'm involved. THE BIG BRAIN AM WINNING AGAIN! I AM THE GREETEST! NOW I AM LEAVING EARTH, FOR NO RAISEN!
 
-Uh, is the puppy mechanical in any way? This is the worst part. The calm before the battle. You can crush me but you can't crush my spirit! Yeah, lots of people did. Dr. Zoidberg, that doesn't make sense. But, okay!
+Uh, is the puppy mechanical in any way? This is the worst part. The calm before the battle. You can crush me but you can't crush my spirit! Yeah, lots of people did. Dr. Zoidberg, that doesn't make sense. But, okay!!!!!!
 
 Five hours? Aw, man! Couldn't you just get me the death penalty? We'll need to have a look inside you with this camera. Wow, you got that off the Internet? In my day, the Internet was only used to download pornography.
 
@@ -38,6 +38,6 @@ Morbo will now introduce tonight's candidates… PUNY HUMAN NUMBER ONE, PUNY HUM
 
 Tell her you just want to talk. It has nothing to do with mating. We're also Santa Claus! Say it in Russian! That's a popular name today. Little "e", big "B"? And when we woke up, we had these bodies.
 
-I found what I need. And it's not friends, it's things. You've killed me! Oh, you've killed me! Maybe I love you so much I love you no matter who you are pretending to be. I love you, buddy! Leela, Bender, we're going grave robbing.
+I found what I need. And it's not friends, it's things. You've killed me! Oh, you've killed me! Maybe I love you so much I love you no matter who you are pretending to be. I love you, buddy! Leela, Bender, we're going grave robbing....
 
 And until then, I can never die? Well, thanks to the Internet, I'm now bored with sex. Is there a place on the web that panders to my lust for violence? I barely knew Philip, but as a clergyman I have no problem telling his most intimate friends all about him.
